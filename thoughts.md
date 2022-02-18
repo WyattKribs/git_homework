@@ -1,0 +1,3 @@
+The staff are here to help and want to train us not only to succeed in the main course but also in future professional settings.
+
+Communicating with my classmates will be a useful tool for me in the coming days as I begin to learn things that I may have a harder time grasping.
